@@ -1,1 +1,1 @@
-# rsschool-cv
+https://clemfluds.github.io/rsschool-cv/cv

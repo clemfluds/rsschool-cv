@@ -1,1 +1,1 @@
-# rsschool-cv
+https://clemfldus.github.io/rsschool-cv/
